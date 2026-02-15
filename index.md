@@ -24,4 +24,4 @@ The game does not knowingly collect any personal information from children under
 ## Contact
 If you have any questions about this Privacy Policy, you can contact us at:
 
-**usefulsoc@gmail.com**
+**usefulsoc.official@gmail.com**
